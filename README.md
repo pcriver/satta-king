@@ -74,5 +74,5 @@ Addiction: Many players become addicted to the game, leading to financial ruin.
 Legal Troubles: Since the game is illegal, participants face the risk of legal action if caught.
 Loss of Money: The odds are stacked against the players, and most participants end up losing money.
 
-Conclusion
+Conclusion:
 Satta King remains a highly controversial yet popular game in India. With its origins rooted in a legitimate form of betting, it has transformed into a system that thrives in the underground economy. Despite its illegal status, the game continues to attract a vast number of participants who are lured by the prospect of huge winnings. However, it is important for people to understand the legal and financial risks involved before engaging in this form of gambling. As long as there’s demand, Satta King will likely continue to evolve, especially with the increasing digitalization of gambling activities.
