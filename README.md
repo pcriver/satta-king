@@ -6,11 +6,13 @@ Satta King refers to a form of lottery-based gambling that revolves around betti
 The game begins with players choosing a number between 0 and 99. A draw is then conducted, and the winning number is declared at a specific time. If the number chosen by the participant matches the drawn number, they win a significant amount of money, often many times their original bet. The game operates in a decentralized manner, with several operators or "kings" running the draws.
 
 History of Satta King
+
 The roots of Satta King can be traced back to the 1950s when betting on cotton rates, transmitted from the New York Cotton Exchange to the Bombay Cotton Exchange, was popular. Over time, this form of betting evolved, and by the 1960s, the system of placing bets on random numbers replaced the cotton rate betting. This new form of the game, which we now know as Satta King, was more accessible and popular among the masses.
 
 With the advent of the internet, Satta King has transcended physical boundaries, and people can now participate in various Satta games online, further increasing its reach and appeal.
 
 How Does Satta King Work?
+
 The operation of Satta King is relatively straightforward but laced with high risks. Here's how the game typically works:
 
 Selection of Numbers: Participants select a number from 00 to 99.
@@ -21,6 +23,7 @@ Payout: The payout is massive, often 90 times the amount of the bet. For instanc
 Due to the illegal nature of the game, the transactions are mostly conducted in cash, and the winnings are not taxed or reported officially.
 
 Types of Satta King Games
+
 There are several popular variations of Satta King, each representing a different region or mode of play. Here’s a list of some of the most well-known Satta games:
 
 1. Desawar
